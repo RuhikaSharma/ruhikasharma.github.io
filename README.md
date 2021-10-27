@@ -1,3 +1,3 @@
-# sahilkhurana-aedev.github.io
+# rishemjitkaur.github.io
 
-https://sahilkhurana-aedev.github.io/
+https://rishemjitkaur.github.io/
