@@ -1,3 +1,3 @@
-# rishemjitkaur.github.io
+# ruhikasharma.github.io
 
-https://rishemjitkaur.github.io/
+https://ruhikasharma.github.io/
